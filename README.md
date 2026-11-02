@@ -1,0 +1,2 @@
+Fast approval
+Flexible terms 
